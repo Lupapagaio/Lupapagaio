@@ -1,16 +1,13 @@
-### Hi there 👋
+### oiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii 👋
 
-<!--
-**Lupapagaio/Lupapagaio** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Nome: **Luiz Augusto Tardim Gomes**
+Apelido: **Lupapagaio ou Lupa**
+Idade: **15 anos (Nacimento: 1 de julho de 2008)**
+Nacionalidade: **Brasileiro** 🇧🇷
 
-Here are some ideas to get you started:
+curiosidades sobre mim:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- gosto de volêi 🏐
+- quero ser astrônomo 🔭
+-  sou introvertido
+- jogo xadrêz ♟️
